@@ -28,6 +28,7 @@ Supported 12 consecutive months of 100% SLA attainment
 
 
 🎓 Education
+
 Bachelor of Arts Major in Social Science
 
 Negros Oriental State University – Dumaguete City, Philippines
