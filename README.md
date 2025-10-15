@@ -1,6 +1,9 @@
 👋 Hi, I'm Arlene Melon
+
 📍 Dumaguete City, Negros Oriental, Philippines
+
 📧 arlenemelon11@gmail.com · 📱 +63 975 175 1027
+
 💼 LinkedIn
 
 💡 About Me
